@@ -1,2 +1,2 @@
 # Jing-Luo-Mechanics
-Jing Luo page
+Jing's website
